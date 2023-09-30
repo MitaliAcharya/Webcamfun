@@ -1,2 +1,2 @@
-# Webcamfun
-Color changing umbrella using webcam
+Just run it, you will like it...
+# TRUST ME 😌
